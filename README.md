@@ -5,6 +5,8 @@ Stoner - John Edward Williams
 
 Optimism over Despair - Noam Chomsky
 
+Siddhartha - Hermann Hesse
+
 Why Fish Don't Exist - Lulu Miller
 
 Seveneves - Neal Stephenson
